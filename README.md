@@ -1,4 +1,4 @@
-# :heaven: giphyHeaven :angel:
+# giphyHeaven :angel: 
 
 [For buttons..and interesting things...and GIPHYs..CLICK HERE!!!!]( https://pfrancis113.github.io/giphyHeaven/)
 
