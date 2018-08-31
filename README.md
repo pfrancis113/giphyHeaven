@@ -1,4 +1,4 @@
 # giphyHeaven
 
-is it gggiphy like :gift: or jiphy like the peanut butter :thinking:... <br>
+is it giphy as in :gift: or jiffy like the peanut butter :peanut butter:?? :thinking:... <br>
 I dont know but either way these things are annoying...adorable yet annoying..
